@@ -59,5 +59,8 @@ I've graduated **Tashkent University of Information Technologies** in 2020. Have
 Passed some online video courses, but don't have any certificate because it was free (pirated ><)
 
 ### English
-I don't have any certificate, some online platforms says that I'm intermediate/upper-intermediate, so...
-For the record, I can watch and understand video courses, tv series, comedy shows, news, football matches in english without subtitle. My favourite sitcom is "The office", but I think best sitcom goes to... ofcourse, whithout any doubt, loved by millions of people - "Friends"
+I don't have any certificate, some online platforms says that I'm **intermediate/upper-intermediate**, so...
+
+For the record, I can watch and understand video courses, tv series, comedy shows, news, football matches in english without subtitle. 
+
+My favourite sitcom is "The office", but I think best sitcom goes to... ofcourse, whithout any doubt, loved by millions of people - "Friends"
